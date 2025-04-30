@@ -14,7 +14,7 @@ A **Tiranga Gift Code** is a promotional code that provides players with free ga
 There are multiple ways to access active **tiranga gift codes**:
 
 - **Official Updates**: Watch out for in-game announcements and app notifications.
-- **Telegram Link**: Join the [Tiranga Gift Code Telegram Channel](#) to receive exclusive and early access codes.
+- **Telegram Link**: Join the [Tiranga Gift Code Telegram Channel]([https://telegram.me/+qzLL3uY9Jmo2OGVl]) to receive exclusive and early access codes.
 - **Community Forums**: GitHub pages, Reddit threads, and blogs often share verified working codes.
 - **Social Media & Influencers**: Follow Tiranga influencers and creators on Instagram and YouTube.
 
