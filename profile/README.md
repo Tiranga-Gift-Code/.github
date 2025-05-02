@@ -1,4 +1,4 @@
-# Daily **Tiranga Gift Code**:
+# Daily Gift Code On Telegram 👇👇
 
 <p align="center">
   <a href="https://telegram.me/+qzLL3uY9Jmo2OGVl" target="_blank">
