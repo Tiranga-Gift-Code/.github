@@ -2,11 +2,16 @@
 
 <p align="center">
   <a href="https://telegram.me/+qzLL3uY9Jmo2OGVl" target="_blank">
-    <img src="https://media-hosting.imagekit.io/f5b9c85caca74db8/Untitled%20(1200%20x%20200%20px)%20(1200%20x%20170%20px)%20(1200%20x%20150%20px).png?Expires=1840828461&Key-Pair-Id=K2ZIVPTIP2VGHC&Signature=nNI5FZ4ZjR0pT9Z8uIDrFmWM-EZVKNscpbZMikMaKs3qcl9Q3NfmGy5dBpI0r7FvzAU7wfVyKl4jmO9u6AiXFclDMr9mYwPrH7tWAkwznwbz4UaSjT8EGHsx88FmRAOKUa8~0~Ix5Bz~FdkUPAKa4f5Skm9tZ-L1DDNccPZ1b885CON7ImPC2mTk1lcUkmn7X5L3KxLqSTe3SdsowkAGQHAzWOddu4ZTnt158PtNw5C1ycIxKjQ01~fvN7e3tiQOmMzQeBRg1sbywhf7aEjfi9UdHARJNJ-YclCtYsg49C0RcGlJww93pXafO2xR0zkOMX1YobvDxB1jV2cbTZUxPw__" alt="Join Tiranga Game Group on Telegram" style="max-width: 100%; height: auto;">
+    <img src="https://media-hosting.imagekit.io/45dd914ffdef49e3/Tiranga-Game-Invite-Code-%E2%80%93-2757419478643-to-Get-%E2%82%B9500-Real-Cash-Bonus-Only-for-New-Users--05-03-2025_02_59_AM.png?Expires=1840829415&Key-Pair-Id=K2ZIVPTIP2VGHC&Signature=YRVrkL3Jpql3aC3a3ReMCDYSaUr-oxHDAZvFly~-CSRcnajKYN-DDtGvMvUDAAiS0AFfXQ3cLgU~k1L7iDI7FejLT2kJJMVztsjfri1JWrguGDJeL82Kwm6aZUi7G-MGyNV02RuH9wjNYY4VMEQH3FVCjiebJrWpbxq67YTOV4CjDNU9tRSMYuQbpDadQ4Hty8ZxQCTX7DJ8c~uB3HGUJotAsPhO68GTRJP-CsvaO5No~DwZzcpH19OQMT1YCdDVanqFxU7sa3CivNgOhJyppGFTpT-CzY0zQx93OFaTvHbv7rrnToPB0knR0uP8XEbrIup8Bothvwa3zsxkrWsEMw__" alt="Tiranga Game Invite Code" style="max-width: 100%; height: auto;">
   </a>
 </p>
 
- [![Tiranga Invite Code Banner](https://media-hosting.imagekit.io/3c684f392a8544a2/Tiranga-Game-Invite-Code-%E2%80%93-2757419478643-to-Get-%E2%82%B9500-Real-Cash-Bonus-Only-for-New-Users--04-30-2025_11_38_PM.png?Expires=1840644657&Key-Pair-Id=K2ZIVPTIP2VGHC&Signature=bmqHBGjp9dHa9VQoNIlWHtDeDfGi94vp9n6vMtV5l6hWvU4HbhT5Sqcqqxv3HjncP2bvuvgYVl2WIoY85vHx2HMVRayX~NfDhcHs9XZTRURJNvQpQI3lT4vrl32E~KL9QrM7tvxiC-lYZMco~sl73DMKGSW~SKOofpYK~v0xM62hv2eZLtkcA6JILkeiSGEM2Rj0GJiYbaYzXlHt4e5QMiRxv-Yqq-hyPU-e-C3cTg-tFErIaJIPyMeX5ePkK~9gjILoIH9saLVvzFnFsdM64ZFzf9nWO3q9uKZQO12qaRr1fzuSYaezzrVciN1vptf2B44t3e6OsPSBv4ntdBDjZw__)](https://tirangainvitecode.in/tiranga)
+<p align="center">
+  <a href="https://tirangainvitecode.in/tiranga" target="_blank">
+    <img src="https://media-hosting.imagekit.io/f32b0671b0b746ab/Tiranga-Game-Invite-Code-%E2%80%93-2757419478643-to-Get-%E2%82%B9500-Real-Cash-Bonus-Only-for-New-Users--05-03-2025_02_57_AM.png?Expires=1840829421&Key-Pair-Id=K2ZIVPTIP2VGHC&Signature=f7omdZYtc1A-7VgZjiTOt6-B-y1GvutfXQLWQW3J3qBT0Ot4AdSjHxk3gQNrutCNXjSdWRxSyaHIOKXG4wgcGO-xxiNAUyOrwFgVFFrCRrb7CO7zdMUX4CX05zi4hq6TkwRuX2P0N-Bm~OlVPF~uO6T5qZLKUlxZAcIAc1qR0R3yOdzPSr4hckGVvcJjSkfAq0mNMzcL12A7W3pb1A-GdXtcAbiEI1IXIgWBaEaZz8-Iqn1SMI3YU7K0b3dNGYSKVygyy1CL5p2lxEpvLhukarqUsngF4arxC6S07UXpj5lmLuacnfq8XZREa0y49078Mn-OWGz-0zgxpHvz~Vs94w__" alt="Tiranga Game Invite Code" style="max-width: 100%; height: auto;">
+  </a>
+</p>
+
 
 If you’re a passionate gamer diving into Tiranga, having access to the latest **Tiranga Gift Code** can unlock exciting bonuses and take your gameplay to the next level. From **free gift codes** to Telegram-exclusive rewards, this guide reveals everything you need to know.
 
