@@ -1,4 +1,4 @@
-# Daily Gift Code On Telegram 👇👇
+# Join Telegram For Daily Gift👇👇
 
 <p align="center">
   <a href="https://telegram.me/+qzLL3uY9Jmo2OGVl" target="_blank">
