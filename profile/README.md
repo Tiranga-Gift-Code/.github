@@ -1,4 +1,4 @@
-# Join Telegram Channel For Daily Gift👇👇
+# Join Telegram Channel For Daily Gift Code👇👇
 
 <p align="center">
   <a href="https://telegram.me/+qzLL3uY9Jmo2OGVl" target="_blank">
