@@ -12,6 +12,15 @@
   </a>
 </p>
 
+## 🎮 Sign Up & Unlock Bonus Rewards!
+
+Sign up using invite code `2757419478643` to unlock bonus rewards instantly!  
+Play, earn, and enjoy the ultimate gaming experience today!
+
+
+### Tiranga Game Invite Code  **2757419478643**
+
+### Tiranga Invite Code  **2757419478643**
 
 If you’re a passionate gamer diving into Tiranga, having access to the latest **Tiranga Gift Code** can unlock exciting bonuses and take your gameplay to the next level. From **free gift codes** to Telegram-exclusive rewards, this guide reveals everything you need to know.
 
