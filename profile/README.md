@@ -24,6 +24,8 @@ Play, earn, and enjoy the ultimate gaming experience today!
 
 If you’re a passionate gamer diving into Tiranga, having access to the latest **Tiranga Gift Code** can unlock exciting bonuses and take your gameplay to the next level. From **free gift codes** to Telegram-exclusive rewards, this guide reveals everything you need to know.
 
+Must Check This Amazing Game [**Daman Invite Code**](https://github.com/Daman-Game-Invite-Code)
+
 ## 🎮 What is a Tiranga Gift Code?
 
 A **Tiranga Gift Code** is a promotional code that provides players with free game rewards, such as bonus coins, spins, or unlockable items. These codes are often released during special events, updates, or shared via the **Tiranga Gift Code Telegram Channel** and trusted community sources.
