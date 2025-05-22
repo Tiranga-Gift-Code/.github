@@ -1,7 +1,7 @@
 # Join Telegram Channel For Daily Gift Code👇👇
 
 <p align="center">
-  <a href="https://telegram.me/+qzLL3uY9Jmo2OGVl" target="_blank">
+  <a href="https://telegram.me/Annie_Tiranga_Bot" target="_blank">
     <img src="https://media-hosting.imagekit.io/45dd914ffdef49e3/Tiranga-Game-Invite-Code-%E2%80%93-2757419478643-to-Get-%E2%82%B9500-Real-Cash-Bonus-Only-for-New-Users--05-03-2025_02_59_AM.png?Expires=1840829415&Key-Pair-Id=K2ZIVPTIP2VGHC&Signature=YRVrkL3Jpql3aC3a3ReMCDYSaUr-oxHDAZvFly~-CSRcnajKYN-DDtGvMvUDAAiS0AFfXQ3cLgU~k1L7iDI7FejLT2kJJMVztsjfri1JWrguGDJeL82Kwm6aZUi7G-MGyNV02RuH9wjNYY4VMEQH3FVCjiebJrWpbxq67YTOV4CjDNU9tRSMYuQbpDadQ4Hty8ZxQCTX7DJ8c~uB3HGUJotAsPhO68GTRJP-CsvaO5No~DwZzcpH19OQMT1YCdDVanqFxU7sa3CivNgOhJyppGFTpT-CzY0zQx93OFaTvHbv7rrnToPB0knR0uP8XEbrIup8Bothvwa3zsxkrWsEMw__" alt="Tiranga Game Invite Code" style="max-width: 100%; height: auto;">
   </a>
 </p>
